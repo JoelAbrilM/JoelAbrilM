@@ -159,7 +159,7 @@ I’m particularly interested in roles involving:
 # 🌐 Connect With Me
 
 GitHub → https://github.com/JoelAbrilM
-Email → [joel.abril16@outlook.com](mailto:joel.abril16@outlook.com)
+Email → [joel.abril16@outlook.com](mailto:jabril16dev@outlook.com)
 
 ---
 
